@@ -2,4 +2,4 @@
 
 Please Download from:
 
-https://drive.google.com/a/umich.edu/file/d/0Bz58QKiZH9l3cF9sdTFnT2MxTEU/view?usp=sharing
+https://docs.google.com/a/umich.edu/document/d/17uKhTg1nY4MInDMzdEzNXJfk_ptOaJnhooChUNuBA80/edit?usp=sharing
