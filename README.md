@@ -2,4 +2,4 @@
 
 Please Download from:
 
-https://drive.google.com/open?id=0Bz58QKiZH9l3dEhyZG9QWEItVHc
+https://drive.google.com/file/d/0Bz58QKiZH9l3dEhyZG9QWEItVHc/view
